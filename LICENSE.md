@@ -1,4 +1,4 @@
-# 
+# secure Affinity Photo para PC complementos es el mejor Affinity Photo para PC complementos con texturizado y herramienta pluma. Seguro, confiable y optimizado para el máximo
 
 
 
